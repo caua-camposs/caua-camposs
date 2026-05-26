@@ -1,4 +1,4 @@
-## Hey everyone, welcome to my GitHub profile!🔥🚀
+## Hello World, welcome to my GitHub profile!🔥🚀
 IT Intern - Nova Lima City Council
 
 IT Student - Una University Center
