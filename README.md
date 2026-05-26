@@ -3,4 +3,6 @@ IT Intern - Nova Lima City Council
 
 IT Student - Una University Center
 
-[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=caua-camposs)](https://github.com/caua-camposs/github-readme-stats)
+[My LinkedIn](https://www.linkedin.com/in/cauacampos-ab7ba7339/)
+
+(This README will be edited later - More news is coming soon 👀)
